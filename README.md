@@ -13,3 +13,5 @@ And we are having a **__lot of fun__** :laughing:
 ![brain] (http://www.astrogle.com/images/2014/09/brain_power.jpg)
  
 and now conflicts
+
+New sync new edit
