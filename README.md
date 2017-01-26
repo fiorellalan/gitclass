@@ -11,3 +11,5 @@ And we are having a **__lot of fun__** :laughing:
 :smirk: And we are learning a lot of things
 
 ![brain] (http://www.astrogle.com/images/2014/09/brain_power.jpg)
+ 
+and now to fight
